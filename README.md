@@ -1,4 +1,4 @@
-## Welcome ^w^
+## Welcome
 
 Hi!!! >,.,<
 
